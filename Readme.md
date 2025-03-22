@@ -1,1 +1,0 @@
-# Johannes Maria Frank
